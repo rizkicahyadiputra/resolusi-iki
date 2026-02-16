@@ -1,2 +1,2 @@
 # resolusi-iki
-iaisdj
+indonesia majuuuu
